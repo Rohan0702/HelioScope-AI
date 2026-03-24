@@ -1,1 +1,0 @@
-# HelioScope-AI
